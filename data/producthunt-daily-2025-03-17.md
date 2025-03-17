@@ -8,7 +8,7 @@
 
 ![Venice](https://ph-files.imgix.net/97baee49-6dda-47f5-8a47-91d2c56e1976.jpeg)
 
-**关键词**：censorship, Private, Unlock unlimited intelligence, Venice, resistant AI
+**关键词**：censorship, Unlock unlimited intelligence, Private, resistant AI, Venice
 **票数**: 🔺566
 **是否精选**：是
 **发布时间**：2025年03月08日 AM12:01 (北京时间)
